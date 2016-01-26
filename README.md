@@ -1,1 +1,1 @@
-# TrainingTopics
+# ProjectIdeas
